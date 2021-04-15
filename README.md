@@ -1,0 +1,1 @@
+# Daisuke-japan.github.io
